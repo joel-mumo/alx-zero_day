@@ -1,1 +1,1 @@
-I like GitHub
+I like GitHub, Hoooray!
